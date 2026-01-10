@@ -1,1 +1,1 @@
-write some posts idk
+AI
